@@ -1,5 +1,7 @@
 # growth-mind-set
 
+## growth mindset is better than fixed mindset!
+
 ***Added by Reem***
 
 **this is bold**
