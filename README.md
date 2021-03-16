@@ -2,6 +2,8 @@
 
 ## growth mindset is better than fixed mindset!
 
+### mohammad al ramahi!
+
 ***Added by Reem***
 
 **this is bold Done by a student!**
