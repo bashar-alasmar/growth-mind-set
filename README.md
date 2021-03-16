@@ -2,6 +2,8 @@
 
 ## growth mindset is better than fixed mindset!
 
+[Sokaynas page](https://bashar-alasmar.github.io/growth-mind-set/sokiyna)
+
 ### mohammad al ramahi!
 
 ***Added by Reem***
