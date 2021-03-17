@@ -22,6 +22,10 @@
 
 #### fadi changed this
 
+**bold again**
+
+*italic*
+
 
 
 
